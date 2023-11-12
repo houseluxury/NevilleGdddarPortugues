@@ -8,4 +8,4 @@ Aqui estão três vídeos inspiradores de Neville Goddard em português:
 2. [**Vídeo 2**](https://www.youtube.com/watch?v=XN6e5fEqB5M)
 3. [**Vídeo 3**](https://www.youtube.com/watch?v=bjVX7hcFi6Q)
 
-Espero que aproveite esses recursos! :film_projector:
+Aguardamos a sua visita aos videos! :film_projector:
